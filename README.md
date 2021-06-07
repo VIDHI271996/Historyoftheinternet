@@ -1,2 +1,2 @@
-# History of the internet
-NJIT IS-601. History of the Internet 
+# History of the internet - Home Page
+
